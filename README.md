@@ -5,6 +5,8 @@
 
 ✅ کلیک کنید:[خرید فوری از ربات تلگرام](https://t.me/v2rayng_gptbot)
 
+✅کلیک کنید: [**ارسال پیام در روبیکا**](https://rubika.ir/mehdi_psychen)
+
 
 
 
